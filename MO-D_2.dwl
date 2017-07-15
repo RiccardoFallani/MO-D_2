@@ -1,3 +1,3 @@
 Sophie
 MacBook Pro di Sophie  
-giovedì 13 luglio 2017  11:01:30 Ora legale dell’Europa centrale
+sabato 15 luglio 2017  15:13:39 Ora legale dell’Europa centrale
